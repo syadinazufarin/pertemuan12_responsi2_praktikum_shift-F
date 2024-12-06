@@ -1,0 +1,1 @@
+# pertemuan12_responsi2_praktikum_shift-F
